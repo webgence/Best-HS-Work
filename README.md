@@ -1,2 +1,2 @@
 # Best-HS-Work
-Here's some of my best HS work excluding CS
+Here's some of my HS work excluding CS
